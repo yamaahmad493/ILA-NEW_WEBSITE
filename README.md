@@ -13,4 +13,4 @@ No permission is granted to reproduce, distribute, or modify this code without p
 
 
 # Creator
-![Sign](https://imgur.com/9EdQTK1) 
+https://imgur.com/9EdQTK1 
